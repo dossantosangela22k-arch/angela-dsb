@@ -23,7 +23,7 @@ Foco em Front-end, experiência do usuário e produtos que resolvem problemas re
 #### 📫 Conecte-se comigo
 
 - LinkedIn: [linkedin.com/in/angela-barbosa](https://www.linkedin.com/in/angela-barbosa)
-- E-mail: angela.dsb.contato@gmail.com
+- E-mail: dossantosangela22k@gmail.com
 - Local: Formosa, Goiás, Brasil | Remoto
 
 ---
